@@ -2,7 +2,7 @@
 - 👀 I’m interested in working on beginer projects!
 - 🌱 I’m currently learning GDScript
 - 💞️ I’m looking to collaborate on starter projects
-- 📫 How to reach me contact me by discord.
+- 📫 Contact me on Discord at snapplejpro.
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: One ding in an elevator is to go up, two dings means down.
 
